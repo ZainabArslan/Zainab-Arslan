@@ -1,0 +1,2 @@
+# Zainab-Arslan
+I am a student of Software Engineering at Fatima Jinnah University. Building my career to prioritize, triage, and manage all of the various milestones of all the various projects on their plate at a given time. Presently, I can manage to do the following things: 1. digital design 2. video creation and editing 3. c++ developer 4. social media designs. 5. Microsoft word or office projects.
